@@ -1,4 +1,4 @@
-# 
+# Instantané leverage trading bot modèles pour Mac OS | Exclusif leverage trading bot modèles pour PC Windows. Avec analyse de volume et agrégation multi-DEX — optimisé pour des performances maximales sur chaque plateforme.
 
 
 
